@@ -4,7 +4,9 @@
 
 永久官网：[bygcloud.com](https://xuv.cc/out/byg)
 
-地址1：[https://asiassn.com](https://www.asiassn.com/#/login?code=ksjYSHuz)
+地址1：[https://asiassn.com](https://www.asiassn.com/#/login?code=ftp0kekc)
+
+地址2：[https://www.sibker.com](https://www.sibker.com/register?code=ftp0kekc)
 
 [![白月光机场官网地址](byg_20240929_095829.png)](https://xuv.cc/out/byg)
 
@@ -40,19 +42,7 @@
 
 ## 白月光优惠码
 
-白月光机场优惠券，最新全场8折通用优惠劵：[周年庆快乐](https://xuv.cc/out/byg)
-
-有效期2024.9.28-2024.9.28
-
-85折通用优惠码：[周年庆快乐](https://xuv.cc/out/byg)
-
-有效期2024.9.29-2024.9.30
-
-9折通用优惠码：[国庆快乐](https://xuv.cc/out/byg)
-
-有效期2024.10.1-2024.10.5
-
-长期优惠券：
+白月光机场优惠券，最新全场8折通用优惠劵，长期优惠券：
 
 半年付95折：[BYG05OFFHA](https://xuv.cc/out/byg)
 
