@@ -1,4 +1,4 @@
-# 白月光官网地址2025最新入口 + 限时优惠码
+# 白月光官网地址2026最新入口 + 限时优惠码
 
 下面是白月光官网最新地址：
 
@@ -8,9 +8,17 @@
 
 地址2：[https://www.sibker.com](https://www.sibker.com/register?code=ftp0kekc)
 
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+## 白月光优惠码
 
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
+白月光优惠券，最新全场8折通用优惠劵，长期优惠券：
+
+半年付95折：[BYG05OFFHA](https://xuv.cc/out/byg)
+
+年付9折：[BYG10OFFAN](https://xuv.cc/out/byg)
+
+两年付85折：[BYG15OFFTY](https://xuv.cc/out/byg)
+
+元旦全场9折优惠码：[元旦快乐](https://xuv.cc/out/byg)
 
 ## 白月光特色简介
 
@@ -41,16 +49,6 @@
 > 一次性包无有效期，用完为止。
 
 [![白月光套餐价格](byg_20240929_100011.png)](https://xuv.cc/out/byg)
-
-## 白月光优惠码
-
-白月光优惠券，最新全场8折通用优惠劵，长期优惠券：
-
-半年付95折：[BYG05OFFHA](https://xuv.cc/out/byg)
-
-年付9折：[BYG10OFFAN](https://xuv.cc/out/byg)
-
-两年付85折：[BYG15OFFTY](https://xuv.cc/out/byg)
 
 ---
 
