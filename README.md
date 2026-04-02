@@ -4,9 +4,9 @@
 
 永久官网：[bygcloud.com](https://xuv.cc/out/byg)
 
-地址1：[https://asiassn.com](https://www.asiassn.com/register?code=ftp0kekc)
+地址1：[https://asiassn.com](https://www.asiassn.com/register?invite_code=ftp0kekc)
 
-地址2：[https://www.sibker.com](https://www.sibker.com/register?code=ftp0kekc)
+地址2：[https://www.sibker.com](https://www.sibker.com/register?invite_code=ftp0kekc)
 
 ## 白月光优惠码
 
